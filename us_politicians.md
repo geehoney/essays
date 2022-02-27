@@ -133,3 +133,25 @@ Republican director of the “Young Republican Federation” Nicholas Elizondo m
 
 Republican benefactor of conservative Christian groups, Richard A. Dasen Sr., was charged with rape for allegedly paying a 15-year old girl for sex. Dasen, 62, who is married with grown children and several grandchildren, has allegedly told police that over the past decade he paid more than $1 million to have sex with a large number of young women.
 - https://missoulian.com/news/kalispell-businessman-richard-dasen-charged-with-prostitution-related-crimes/article_f04ce8a9-fa02-54fa-addd-267d2357a4a9.html
+
+### Democratic Party
+
+[Pennsylvania Democrat Philip Ahr](http://www.philly.com/philly/news/crime/facing-child-porn-charges-philip-ahr-resigns-from-radnor-township-board-20171106.html) is facing child porn charges with the victims being as young as toddlers.
+
+[Democrat Seattle Mayor Ed Murray accused of child sex abuse](https://www.seattletimes.com/seattle-news/politics/seattle-mayor-ed-murray-resigns-after-fifth-child-sex-abuse-allegation/)
+
+[Democrat New York Mayor Rick Nelson arrested for child porn](https://nypost.com/2017/09/04/mayor-of-new-york-town-resigns-after-kiddie-porn-bust/) 
+
+[Former Mayor of Clayton, Dale Kenyon](http://cnycentral.com/news/local/deputies-jefferson-county-man-facing-22-counts-of) a Democrat, arrested for sexual abuse
+
+[Democrat Mayor of Randolph, Nebraska, Dwayne Schutt](http://www.omaha.com/news/crime/mayor-of-randolph-nebraska-is-accused-of-sexually-assaulting-a/article_21aa08a1-410a-57cc-afb8-6c41cce778d4.html) is arrested for pedophilia
+
+[Former Ohio mayor Richard Keenan, a Democrat](http://www.wfmj.com/story/35230216/former-hubbard-mayor-richard-keenan-receives-life-sentence-for-child-rape), was handed a life sentence in April 2017 after he pled guilty to repeatedly raping a four-year-old girl
+
+[Democrat Dawson Mayor Christopher Wright](http://www.wtoc.com/story/31244361/dawson-mayor-implicated-in-molestation-of-12-year-old) implicated in molestation of 12-year-old
+
+[Democrat Donald H. Briggs](http://www.poughkeepsiejournal.com/story/news/crime/2016/12/13/donald-briggs-millbrook-sex-charge/95368026/), a former mayor of Millbrook, faces felony charges linked to alleged inappropriate sexual contact with a person younger than 17
+
+[Democrat Jacob Schwartz](https://nypost.com/2017/05/26/de-blasio-staffer-arrested-for-child-pornography/) a de Blasio administration employee arrested for child pornography
+
+[Oregon Representative Democrat David Wu](https://www.washingtonpost.com/politics/rep-david-wu-d-ore-says-he-will-resign-after-report-of-sexual-encounter/2011/07/26/gIQALrQGbI_story.html) resigns for unwanted sexual encounter accusation.
